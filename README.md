@@ -8,7 +8,7 @@
 
  Cada dia é uma nova oportunidade para brilhar 🌟
 
- ### Email de contato
+ ### Emails de contato
 
 ### joaquimmachadooo7@gmail.com
 ### neto.joaquim18@escola.pr.gov.br
